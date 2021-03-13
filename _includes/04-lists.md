@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+* GTech MLearn is fun ❤️
+* Enjoy Coding
+  - EAT
+  - SLEEP
+  - CODE
+* Discover your passion
+ 
